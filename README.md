@@ -1,2 +1,1 @@
-# dcq
-just upload some program that interesting.
+一些有用的书籍资料，末日危机或者穿越者必备^_^
